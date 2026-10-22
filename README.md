@@ -1,4 +1,4 @@
-# Ægte-Garantnin
+# Ægte Garantnin
 Ægte Garantnin Strategy Blueprint 2026
 ## Ægte Garantnin Strategy Blueprint 2026: how to build decisions that stay clear when operations become complex
 
